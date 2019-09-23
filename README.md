@@ -1,1 +1,1 @@
-Lecture 2 Renee
+Lecture 2
